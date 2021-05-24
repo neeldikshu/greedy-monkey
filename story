@@ -1,1 +1,1 @@
-crocodile and the monkey
+crocodile and the monkey: the two mysterious friends
